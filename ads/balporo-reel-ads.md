@@ -1,6 +1,6 @@
 # Balporo BBae — Content quảng cáo Reel Facebook (3 mẫu)
 
-Viết theo `BRAND_VOICE.md`. Mỗi mẫu gồm: Văn bản chính (primary text), Tiêu đề (headline), Mô tả (description).
+Viết theo `BRAND_VOICE.md`. Mỗi mẫu gồm: Văn bản chính (primary text, đã kèm chân trang cố định của BBae Lab), Tiêu đề (headline), Mô tả (description).
 Link: https://s.shopee.vn/903yrhRxQQ
 
 ---
@@ -20,6 +20,19 @@ Lịch trình kín mít, đi đâu cũng được "chiêu đãi" toàn món ngon
 "Bận cỡ nào thì chị em mình vẫn cần thương bản thân, đúng không ạ?" Rinh ngay Balporo BBae chính hãng tại đây 👉 https://s.shopee.vn/903yrhRxQQ
 
 *Thực phẩm này không phải là thuốc và không có tác dụng thay thế thuốc chữa bệnh.*
+
+--------------------------
+CÔNG TY CPTM BBAE LAB
+📍 Độc quyền phân phối viên sủi Balporo BBae và băng quần cao cấp Cielo Stellato tại Việt Nam
+📍 Website: https://bbaelab.vn/
+📍 Shopee
+BBae Lab: https://shopee.vn/bbaelab
+Cielo Stellato: https://shopee.vn/cielo_stellato_vn
+📍 Tiktok shop
+BBae Lab: https://vt.tiktok.com/ZSQMjm7uL/?page=TikTokShop
+Cielo Stellato: https://vt.tiktok.com/ZSQMjyMfJ/?page=TikTokShop
+
+#BBaeLab #BalporoBBae #CieloStellato
 
 **Tiêu đề:** Bận rộn vẫn yêu bản thân cùng Balporo BBae
 **Mô tả:** Viên sủi chua ngọt chuẩn Hàn – chính hãng trên Shopee
@@ -42,6 +55,19 @@ Sủi chỉ là một phần thôi, muốn đẹp thì chị em mình nhớ kế
 
 *Thực phẩm này không phải là thuốc và không có tác dụng thay thế thuốc chữa bệnh.*
 
+--------------------------
+CÔNG TY CPTM BBAE LAB
+📍 Độc quyền phân phối viên sủi Balporo BBae và băng quần cao cấp Cielo Stellato tại Việt Nam
+📍 Website: https://bbaelab.vn/
+📍 Shopee
+BBae Lab: https://shopee.vn/bbaelab
+Cielo Stellato: https://shopee.vn/cielo_stellato_vn
+📍 Tiktok shop
+BBae Lab: https://vt.tiktok.com/ZSQMjm7uL/?page=TikTokShop
+Cielo Stellato: https://vt.tiktok.com/ZSQMjyMfJ/?page=TikTokShop
+
+#BBaeLab #BalporoBBae #CieloStellato
+
 **Tiêu đề:** Ăn ngon, sống khoẻ, dáng vẫn xinh
 **Mô tả:** Item bất ly thân của chị em mê thể thao
 
@@ -63,6 +89,19 @@ Những hôm lỡ hẹn với trà sữa, lẩu nướng tới khuya, chị em c
 Được ăn ngon mà vẫn tự tin, ngại gì không thử? Rinh ngay 👉 https://s.shopee.vn/903yrhRxQQ
 
 *Thực phẩm này không phải là thuốc và không có tác dụng thay thế thuốc chữa bệnh.*
+
+--------------------------
+CÔNG TY CPTM BBAE LAB
+📍 Độc quyền phân phối viên sủi Balporo BBae và băng quần cao cấp Cielo Stellato tại Việt Nam
+📍 Website: https://bbaelab.vn/
+📍 Shopee
+BBae Lab: https://shopee.vn/bbaelab
+Cielo Stellato: https://shopee.vn/cielo_stellato_vn
+📍 Tiktok shop
+BBae Lab: https://vt.tiktok.com/ZSQMjm7uL/?page=TikTokShop
+Cielo Stellato: https://vt.tiktok.com/ZSQMjyMfJ/?page=TikTokShop
+
+#BBaeLab #BalporoBBae #CieloStellato
 
 **Tiêu đề:** Cứu tinh cho hội hay ăn đêm
 **Mô tả:** Viên sủi Balporo BBae – chua ngọt, không đường
